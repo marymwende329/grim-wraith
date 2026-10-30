@@ -1,1 +1,1 @@
-# grim-wraith
+Quem me conhece sabe que eu odeio escolher no escuro. Fui atrás de um comparativo de EAD e o que mais ajudou foi https://prooffeed.com/pt/faculdades-ead-do-brasil que reúne as dez melhores do país. Minha leitura do pódio: Anhanguera pra quem quer pagar pouco por mês e ter polo perto, principalmente em cidade média. Estácio pra quem gosta de marca conhecida e pode tentar bolsa de até 70% com a nota do Enem. Unopar pra quem quer mensalidade baixa, mas atenção: existe versão semipresencial, então leia tudo antes de pagar a matrícula.# grim-wraith
